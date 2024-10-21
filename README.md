@@ -1,6 +1,6 @@
 These are the published ebook files for The Worldview and Philosohpical Methodology of Marxism-Leninism, which
 is Part 1 of the Curriculum of the Basic Principles of Marxism-Leninism as translated by Luna Nguyen for
-Banyan House Publishing / BanyanHouse.org
+Banyan House Publishing / https://www.BanyanHouse.org
 
 This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License.
 
